@@ -2,5 +2,5 @@
 just loose ideas
 
 maria.brylka@netguru.co <br>
-jr qa specialist <br>
-11/21/18
+qa specialist <br>
+05/07/2019
